@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @davidszentesi
+- 👋 Hi, I’m @szntsd
